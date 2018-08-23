@@ -92,3 +92,4 @@ Research, as well as personal experience, shows that students tend to understand
  
 #### CMS / LMS:
 We will use ManageBac.
+ 
