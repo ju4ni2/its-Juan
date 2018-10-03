@@ -7,4 +7,4 @@
    Bridget Riley was the daugther of a buissnessman she studied at Goldsmiths' College from 1949 to 1952, and at the Royal College of Art from 1952 to 1955. She uses art from the past and the renissance as inspiration for her pieces of art. acording to https://www.theartstory.org/artist-riley-bridget.htm Riley's formal compositions invoke feelings of tension and repose, symmetry and asymmetry, dynamism and stasis and other psychic states, making her paintings less about optical illusions and more about stimulating the viewer's imagination.
 
  **Casey Reas**
-  Casey Reas is known for  
+  Casey Reas is known for conceptual, procedural and minimal artworks explore ideas through the contemporary lens of software, which can be translated into exploring ideas using computer softwareto create art. He is also known for creating 
