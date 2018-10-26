@@ -8,3 +8,10 @@
 
  **Casey Reas**
   Casey Reas is known for conceptual, procedural and minimal artworks explore ideas through the contemporary lens of software, which can be translated into exploring ideas using computer softwareto create art. He is also known for creating 
+  
+  
+  
+ **Oleg Dou**
+  Oleg Dou is a really interesting artist, he uses a diferent technique than many different artist. He was born in Russia 1983 and has lived his whole life in that country. The artist aspect of him comes from her mother, his mother is an artist and she used to take them to the studio with her friends/other artist. 
+  He realized he had the ability to become an artist when he was around 6 or 7 years old. He had a friend who he said was really pale and had an old age face and tried using photoshop to clean up her face but ended up doing the type of art he does. 
+  His art is really disturbing to see, his pieces of art are so...unexplainable they are weird, "They are so depressing looking"- Mohammed Mousa (kid who sits next to me), and they do they have a view of a sad face, and the pale color makes it even more sad, in none of the pictures of his art that I saw in none of them the girl of the pictures was smiling. But I think that this is the reason why his art is special and why he is known around the world.  
